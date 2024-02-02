@@ -1,1 +1,1 @@
-# My-Portfolio
+Experienced Software Engineer with a demonstrated history of working in the information technology and services industry. Skilled in SQL, Microsoft Excel, Microsoft Word, Data Structures, and Microsoft Office. Strong engineering professional with a Bachelor of Computer Application focused in Computer Science from Punjab Technical University. 
